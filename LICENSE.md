@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with pump.fun sniper bot vip Bot - volume-spike-detection and blockchain-scanning, the #1 pump.fun sniper bot. Includes volume-spike-detection and
 
 
 
